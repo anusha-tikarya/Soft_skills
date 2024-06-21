@@ -1,6 +1,15 @@
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/517e5aa0-6f90-413c-84f1-91fa3cda74b3)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/55e1c472-b249-46b0-b17e-eff048a32bc3)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/35ae225f-1128-46c2-9339-429d72d751a9)
+### Accountability means taking responsibility for your actions and decisions, and being answerable to others for them. It involves:
+
+1. **Ownership**: Acknowledging and owning up to what you are supposed to do.
+2. **Transparency**: Being open about your actions and decisions.
+3. **Answerability**: Being prepared to explain and justify your actions to others.
+4. **Consequences**: Accepting the outcomes of your actions, whether good or bad.
+
+For example, if you are part of a team at work and you are assigned a task, being accountable means you do your best to complete the task on time, keep your team updated on your progress, and if things go wrong, you own up to it and work on fixing the issues.
+
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/4feb1618-eab1-47d1-80e9-c8ad9c4a7f70)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/bd50c830-07e3-47bc-a617-40fb2755197a)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/9f3bfd5f-4c95-4a8e-b672-68472f8384d1)
