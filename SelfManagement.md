@@ -1,4 +1,4 @@
-## ICEBREAKER definition: 1. a game or joke that makes people who do not know each other feel more relaxed together 
+## ICEBREAKER : 1. a game or joke that makes people who do not know each other feel more relaxed together 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/cbf8a6b4-ab4e-4886-b3e4-d2b5424a9337)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/ffabbd5e-99bc-4c71-89d8-d2606862a82c)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/b8e3b8c9-cb6f-41e0-affd-090e24955ce0)
