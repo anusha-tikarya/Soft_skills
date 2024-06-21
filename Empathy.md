@@ -1,4 +1,4 @@
-
+## Empathy
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/9406a315-34df-4d5b-9210-e038f1fe1a0e)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/f71aeaf9-82b1-4602-96d7-4dd8cf594901)
