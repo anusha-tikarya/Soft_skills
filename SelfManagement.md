@@ -92,4 +92,6 @@ These are the external factors that could cause trouble for the company.
 A SWOT analysis is a versatile tool that can be applied to any business or project to gain a comprehensive understanding of its strategic position.
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/be84ee2f-f94f-468c-865f-404b31298974)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/58ade4fa-ac94-4062-9fee-d392215db4d5)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/11718e9c-14a3-47e8-9dfd-4cd6125ffe09)
 
