@@ -126,3 +126,4 @@ Good customer service indeed revolves around the 3 P's: People, Process, and Pro
 
 By focusing on all three P's—People, Process, and Product—organizations can build a solid foundation for delivering excellent customer service consistently, leading to happier customers and ultimately, business success.
 
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/350fff6e-a896-48f8-82ce-269730fbaa50)
