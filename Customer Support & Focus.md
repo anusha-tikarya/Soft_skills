@@ -99,3 +99,5 @@ Dealing with each type requires empathy, patience, and sometimes specific strate
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/a156773b-bca4-4952-9cc2-2824af09eda5)
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/2813e809-b3f5-4219-ab09-eeeb53a7cfc4)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/ff93591e-56e3-4518-99d6-f2b45e19639d)
+
