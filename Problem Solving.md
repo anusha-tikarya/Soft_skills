@@ -74,3 +74,6 @@ The image describes two main approaches to creativity:
 
 In summary, programmed thinking is structured and convergent, 
 while lateral thinking is more freeform and divergent. Both approaches are essential for fostering creativity and problem-solving.
+
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/b756d264-6db6-4c36-9ffe-b085972c3668)
+
