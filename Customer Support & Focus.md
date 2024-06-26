@@ -18,3 +18,8 @@
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/229d58f2-8580-42c0-bbd5-c9cde6e07d74)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/4047981e-7ead-4bef-b7b2-2b3b6788c3f8)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/4b4ddf24-67e0-471d-9eaf-277937a06889)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/01b38f4a-4e5e-417b-ae56-9799999db521)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/d9484961-1884-47ce-99e5-da8a270f168c)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/a156773b-bca4-4952-9cc2-2824af09eda5)
+
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/2813e809-b3f5-4219-ab09-eeeb53a7cfc4)
