@@ -77,3 +77,4 @@ while lateral thinking is more freeform and divergent. Both approaches are essen
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/b756d264-6db6-4c36-9ffe-b085972c3668)
 
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/eea2fe18-09c3-45ba-ae81-b0ec71bd9f40)
