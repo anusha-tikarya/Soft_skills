@@ -27,6 +27,8 @@ It serves as a reminder to be more self-aware and cautious about making assumpti
 
  **Divergence and convergence** are two essential phases in the creative problem-solving process. Here's a brief explanation of each:
 
+
+
 ### Divergence:
 - **Definition**: This is the phase where you generate a wide variety of ideas, options, and possibilities without judgment or immediate evaluation.
 - **Purpose**: To explore a broad range of potential solutions and perspectives.
@@ -84,3 +86,10 @@ Instead of saying No to Customers  ==> lets brainstrom , lets discuss
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/501c7043-d4b3-4b99-9b7a-55a4eb0b6716)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/1ff5b0cd-94e8-4fdf-b1c7-6fae00ae1f44)
 
+
+ ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/9f87b805-6ae2-4b98-82fa-f39642310609)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/4cd6e83e-521f-4472-9705-b76bf89d51db)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/c462aa6f-e5eb-485e-a52c-f4903252b307)
+
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/9835ce18-6291-470b-be6a-138355ab3c5a)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/05372b0a-1f40-4da4-8a74-433eb0696e69)
