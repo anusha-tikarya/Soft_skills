@@ -97,6 +97,24 @@ Each of these customer types requires a tailored approach that balances empathy,
 
 Dealing with each type requires empathy, patience, and sometimes specific strategies tailored to the customer's behavior and concerns.
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/a156773b-bca4-4952-9cc2-2824af09eda5)
+ Here's an example using the Four Step Model in Handling Difficult Customers:
+
+**Customer Complaint:**
+"I ordered a product a week ago, and it still hasn't arrived. This is unacceptable. I need it immediately."
+
+**Step 1: I Understand**
+"I understand that you're frustrated and need the product urgently."
+
+**Step 2: However**
+"However, there was an unexpected delay due to high demand, which caused a backlog in our shipping department."
+
+**Step 3: Therefore**
+"Therefore, we have expedited your order and it will be shipped out today with priority shipping at no additional cost to you."
+
+**Step 4: Is that alright with you?**
+"Is that alright with you? We apologize for the inconvenience and appreciate your patience."
+
+Using this model helps to acknowledge the customer's concerns, explain the situation, offer a solution, and seek their agreement, making the interaction more positive and constructive.
 ## Role Play
 Sheela and her team are creating a tool for a telecommunication client to track issues reported by its customers. The team was on schedule before their city was hit by a flood, affecting everyday life and work. Post the calamity, the team reworked the project schedule and identified a delay of three weeks in delivering the final product. The team informs the client and decides to have a meeting to discuss the issue.
 
