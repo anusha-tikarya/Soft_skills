@@ -79,3 +79,8 @@ while lateral thinking is more freeform and divergent. Both approaches are essen
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/eea2fe18-09c3-45ba-ae81-b0ec71bd9f40)
 Instead of saying No to Customers  ==> lets brainstrom , lets discuss
+
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/5befee03-b0de-4931-91ff-bfc7c1476c62)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/501c7043-d4b3-4b99-9b7a-55a4eb0b6716)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/1ff5b0cd-94e8-4fdf-b1c7-6fae00ae1f44)
+
