@@ -93,3 +93,17 @@ Instead of saying No to Customers  ==> lets brainstrom , lets discuss
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/9835ce18-6291-470b-be6a-138355ab3c5a)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/05372b0a-1f40-4da4-8a74-433eb0696e69)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/65d9245c-fd68-43ee-a9b7-5e14e874b82e)
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/fd69920d-c376-4d55-ae0d-1bde3b83938b)
+
+SCAMPER is a mnemonic that stands for a set of techniques used for creative thinking and problem-solving. Each letter represents a different technique:
+
+- **S**ubstitute: What can be substituted to improve or change the current situation?
+- **C**ombine: How can elements be combined to create something new?
+- **A**dapt: Can something be adapted from somewhere else for use in this situation?
+- **M**odify: What can be modified or changed to improve the current situation?
+- **P**ut to another use: How can something be used differently or in a new context?
+- **E**liminate: What can be removed to simplify or improve the current situation?
+- **R**everse: Can any part of the process be reversed or turned upside down to generate new ideas?
+
+These techniques are often used in brainstorming and innovation sessions to stimulate creative thinking and explore new possibilities.
