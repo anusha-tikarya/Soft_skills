@@ -104,3 +104,4 @@ This rule ensures a welcoming and engaging environment for attendees or customer
 **better to stand Right side**
 
 https://www.youtube.com/watch?v=MnIPpUiTcRc
+https://www.youtube.com/watch?v=3kgtpl4Q5OY
