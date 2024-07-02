@@ -3,6 +3,7 @@
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/58cc076f-dc1d-459d-a87f-c7fa77ff865b)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/604e5e27-d53d-4153-8589-ef1515a75bd7)
 
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/5d51c1bd-f157-43d8-a4a2-637c985b0987)
 
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/a3d26456-d53e-4ede-b84e-be97d4e360f9)
