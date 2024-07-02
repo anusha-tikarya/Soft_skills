@@ -18,3 +18,35 @@
 
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/b5e67de7-358c-4360-b339-d7bf52a81800)
 ![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/36849667-a473-498f-9df9-e5e1953df5ab)
+## Here are some examples to illustrate these tips:
+
+### Opening:
+1. **Short Introduction**: 
+   - "Good morning, I'm Anusha, and today I'll be sharing how "innovative technology is revolutionizing our daily lives."
+2. **Open with a Bang**:
+   - "Did you know that by 2025, the global IoT market will reach $1.6 trillion? Today, we'll explore how this impacts you."
+3. **Rhetorical Questions**:
+   - "Have you ever wondered why some companies thrive while others fail?"
+4. **Stories**:
+   - "When Rohan started his business in his garage, he never imagined it would become a multi-million dollar enterprise."
+5. **Real-Life Examples**:
+   - "Imagine a world where your refrigerator orders groceries for you. This isn't science fiction; it's happening now."
+6. **Use a Video**:
+   - Begin with a short, impactful video clip relevant to your topic.
+7. **Activity**:
+   - Start with a quick interactive poll or a hands-on activity to engage the audience.
+
+### Closing:
+1. **Close with a Bang**:
+   - "And remember, the future is not something we enter. The future is something we create. Let's create it together."
+2. **Leave with a Thought**:
+   - "Consider this: every great innovation started as a simple idea. What will your next idea be?"
+3. **Call to Action**:
+   - "I encourage each of you to take one small step today towards implementing what we've discussed."
+4. **Quote**:
+   - "As Albert Einstein said, 'Imagination is more important than knowledge.' Let's put our imagination to work."
+5. **Video**:
+   - End with an inspiring video that encapsulates your presentation's key message.
+6. **Pause for Questions**:
+   - "Thank you for your attention. I'm now open to any questions you may have."
+
