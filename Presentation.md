@@ -51,3 +51,56 @@
 6. **Pause for Questions**:
    - "Thank you for your attention. I'm now open to any questions you may have."
 
+
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/2e78509f-b7d5-49bd-b2b1-73fa96486efb)
+
+## here are some concise ways to handle questions during a presentation when you don't know the answer or need more time:
+
+### Acknowledge and Defer
+- "Great question. I'll look into it and get back to you."
+- "Let's discuss this after the presentation for a detailed answer."
+
+### Redirect
+- "Does anyone here have insights on this?"
+- "Check [specific resource] for more information."
+
+### Offer a Follow-Up
+- "I'll follow up with you via email."
+- "Leave your contact info, and I'll get back to you."
+
+### Use General Knowledge
+- "While I don't have the exact answer, generally..."
+- "Based on what I know, typically..."
+
+### Clarify Scope
+- "That's outside today's scope. I'll look into it and follow up."
+- "This requires more expertise. I'll refer you to an expert."
+
+These responses keep the presentation moving smoothly and show that you value the audience's questions.
+
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/b1fbc737-11de-46f3-832f-8f4ec06e3c3f)
+
+## what i understand , what u said is...1,2,3.
+## is there anything else , where I can help you .
+## after listning to you , According to my understanding we can help you ............
+## share ur challenges
+
+![image](https://github.com/anusha-tikarya/Soft_skills/assets/84814767/38a6e51f-5d63-41c5-a43a-64d2be38918b)
+### 10-5-3 Rule in Customer Service and Presentations
+
+**10 Feet**:
+- **Action**: Make eye contact and smile.
+- **Purpose**: Acknowledge presence and create a friendly atmosphere.
+
+**5 Feet**:
+- **Action**: Greet verbally (e.g., "Hello" or "Welcome").
+- **Purpose**: Reinforce acknowledgment and start building a connection.
+
+**3 Feet**:
+- **Action**: Engage in a brief conversation (e.g., "How can I help you?" or "Do you have any questions?").
+- **Purpose**: Create a personal connection and make the person feel valued.
+
+This rule ensures a welcoming and engaging environment for attendees or customers.
+**better to stand Right side**
+
+https://www.youtube.com/watch?v=MnIPpUiTcRc
